@@ -1,2 +1,2 @@
 # TERMOS
-Ternos de Privacidade
+Termos de Privacidade
